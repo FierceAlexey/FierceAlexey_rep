@@ -1,1 +1,1 @@
-there is my project. i dont know what i donna make.
+there is my project. i dont know what i gonna make.
